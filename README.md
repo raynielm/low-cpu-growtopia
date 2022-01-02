@@ -3,6 +3,6 @@ low cpu growtopia
 
 edited growtopia, uses lower cpu. good for rdp.
 
-Discord: Rayniel#2423
+Discord: rayy#5664. my old one got banned
 
-Asakin discord server: https://discord.gg/GtkEGqFb3f
+
